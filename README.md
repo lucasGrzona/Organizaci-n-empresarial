@@ -1,1 +1,1 @@
-# Organizaci-n-empresarial
+# Organizacin-empresarial
